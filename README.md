@@ -1,16 +1,17 @@
-## Hi there 👋
+sejam bem vindos bom aproveito
 
-<!--
-**marianamicheletti/marianamicheletti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**mariana**
 
-Here are some ideas to get you started:
+estou estudando na 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+eu gosto mecher no celular
+
+gosto muito de portugues e de fazer redaçao 
+
+gosto de sair com meu namorado 
+
+gosto de cozinhar e de fazer doces 
+
+gosto de filme de açao 
+
